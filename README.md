@@ -1,2 +1,3 @@
 # Translucent-Fire
-![2023-07-06_18 18 22](https://github.com/HollySyu/Translucent-Fire/assets/110673783/033067a3-7f69-4a24-8d6f-a7c37fc83ed2)
+
+![2023-07-06_18 20 11](https://github.com/HollySyu/Translucent-Fire/assets/110673783/dbc3719b-b87f-4f30-9cce-971b9d295fad)
